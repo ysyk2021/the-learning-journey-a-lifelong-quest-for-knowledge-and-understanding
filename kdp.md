@@ -10,9 +10,6 @@ Through practical examples and expert insights, The Learning Journey offers valu
 
 With its clear and accessible writing style, The Learning Journey is a must-read for anyone looking to take charge of their personal growth and embark on a lifelong quest for knowledge and understanding.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
