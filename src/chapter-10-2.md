@@ -1,5 +1,3 @@
-Techniques for Overcoming Common Challenges and Obstacles
-=========================================================================================================
 
 The learning journey is not always easy, and learners are likely to encounter challenges and obstacles along the way. Here are some techniques for overcoming common challenges and obstacles:
 

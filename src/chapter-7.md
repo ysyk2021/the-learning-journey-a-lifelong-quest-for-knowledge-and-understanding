@@ -1,5 +1,3 @@
-Chapter 6: Engaging in Active Learning
-======================================
 
 Engaging in active learning is a key component of effective lifelong learning. It involves actively engaging with the material, interacting with others, and applying knowledge in real-life situations. In this chapter, we will explore the role of active learning in the learning journey, techniques for effective note-taking, questioning, and critical thinking, and building creativity and innovation skills.
 

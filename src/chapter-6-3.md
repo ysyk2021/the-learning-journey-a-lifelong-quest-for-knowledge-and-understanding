@@ -1,5 +1,3 @@
-Building Research and Information Literacy Skills
-================================================================================================
 
 Seeking out learning opportunities is an essential component of effective lifelong learning. It involves developing research and information literacy skills to identify, locate, evaluate, and use information effectively. In this chapter, we will explore techniques for building research and information literacy skills.
 

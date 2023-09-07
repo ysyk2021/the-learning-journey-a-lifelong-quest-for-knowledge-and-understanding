@@ -41,3 +41,5 @@
   - [Techniques for overcoming common challenges and obstacles](chapter-10-2.md)
   - [Building resilience and adaptability](chapter-10-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

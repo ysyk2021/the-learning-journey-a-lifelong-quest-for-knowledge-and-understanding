@@ -1,5 +1,3 @@
-Building Communication and Teamwork Skills
-====================================================================================================
 
 Collaborative learning and community building are essential components of effective lifelong learning. They involve working with others to achieve common goals, share knowledge and skills, and build a supportive learning community. In this chapter, we will explore how collaborative learning and community building can help learners to build communication and teamwork skills.
 

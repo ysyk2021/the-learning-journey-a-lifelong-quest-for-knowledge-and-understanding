@@ -1,5 +1,3 @@
-Chapter 4: Setting Learning Goals
-=================================
 
 The Importance of Setting Learning Goals in the Learning Journey
 ----------------------------------------------------------------

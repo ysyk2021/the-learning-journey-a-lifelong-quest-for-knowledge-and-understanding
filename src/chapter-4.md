@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Techniques for Building Self-Awareness in Relation to the Learning Journey
 --------------------------------------------------------------------------

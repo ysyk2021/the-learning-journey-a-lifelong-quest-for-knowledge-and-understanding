@@ -1,5 +1,3 @@
-Chapter 7: Collaborative Learning and Community Building
-========================================================
 
 The Importance of Collaborative Learning and Community Building in the Learning Journey
 ---------------------------------------------------------------------------------------

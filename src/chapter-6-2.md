@@ -1,5 +1,3 @@
-Techniques for Finding and Accessing Learning Resources
-======================================================================================================
 
 Seeking out diverse learning opportunities is a key component of effective lifelong learning. It involves actively seeking new experiences and perspectives, building research and information literacy skills, and accessing a variety of learning resources. In this chapter, we will explore techniques for finding and accessing learning resources that can enhance your learning journey.
 
