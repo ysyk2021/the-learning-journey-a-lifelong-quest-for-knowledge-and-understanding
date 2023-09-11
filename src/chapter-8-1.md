@@ -1,5 +1,4 @@
-Chapter: The Importance of Collaborative Learning and Community Building in the Learning Journey
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
